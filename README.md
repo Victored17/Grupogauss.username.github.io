@@ -1,1 +1,0 @@
-# Grupogauss.username.github.io
